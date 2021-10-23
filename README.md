@@ -1,2 +1,2 @@
-# 91-days-mugi
-91 Days Subs by Mugi
+# 91 Days Subs by Mugi
+http://mugi-subs.blogspot.com/
